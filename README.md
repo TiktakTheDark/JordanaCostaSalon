@@ -1,1 +1,1 @@
-# [JordanaCostaSalon](https://tiktakthedark.github.io/JordanaCostaSalon/)
+# [JordanaCostaSalon](https://www.jodanacosta.ch)
